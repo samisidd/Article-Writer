@@ -1,0 +1,2 @@
+# Article-Writer
+I will write highly researched and search engine optimised (SEO) blog posts using topics and keywords of your choice. I write compelling creative content that educates, informs and delights the audience. I have a Masters in Law, I have worked as a senior corporate lawyer for quite good years and have been in the blogging industry for a couple of years. I am highly qualified to work on any of your professional writing projects and look forward to hearing from you soon.
